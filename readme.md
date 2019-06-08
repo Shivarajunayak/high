@@ -1,9 +1,3 @@
-hhjdjgf
-jagdhjhgdff
-ahhjkahkj
-dfsfdhf
-xffhjs
-xjhjajash
-kfhfdff
-hsha,f,
-ddfhkfjk
+look your goal
+commit to do
+hi my is shiva
